@@ -1,0 +1,1 @@
+# projeto-paradigmas-2023
